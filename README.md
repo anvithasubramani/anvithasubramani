@@ -1,4 +1,4 @@
-# Hi, I'm Anvitha Priyaa Subramani 👋
+# Hi, I'm Anvitha Priyaa Vellal Subramani 👋
 
 ### Data Science | Business Analytics | AI & Machine Learning
 
